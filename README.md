@@ -1,2 +1,2 @@
 # corrade
-dont listen to what people say, but hear what oeoole say 
+dont listen to what people say, but hear what people say 
